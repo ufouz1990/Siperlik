@@ -1,0 +1,1 @@
+Covid-19 Face Shield with temples fast/simple version to cut in Laser Acrylic or 3D print  by racl on Thingiverse: https://www.thingiverse.com/thing:4236612
